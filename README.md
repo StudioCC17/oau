@@ -1,4 +1,4 @@
-# Open As Usual holding page
+# Open As Usual
 
 THE OAU STORE WILL BE BACK SOON
 
